@@ -11,11 +11,16 @@ I am an accomplished **Chief Technology Officer (CTO)** with a remarkable 24-yea
 
 ## 📞 Contact Me
 You can reach out through the following channels:
-- **Gmail/Chat**: [dhanraj.dadhich@gmail.com](mailto:dhanraj.dadhich@gmail.com)
-- **Call/WhatsApp**: +918886476456
+- **Gmail/Chat**: [Dhanraj Dadhich Email](mailto:dhanraj.dadhich@gmail.com)
+- **Call/WhatsApp**: [+91 888 647 6456](https://tinyurl.com/dhanrajdadhich?source=about_page-------------------------------------) / [+91 865 707 0079](https://tinyurl.com/CallTheRaj?source=about_page-------------------------------------)
+- **Telegram**: [Dhanraj Dadhich](https://t.me/thedhanraj)
+- **Twitter**: [@dhanrajdadhich1](https://twitter.com/dhanrajdadhich1)
+- **Medium**: [medium.com/@dhanrajdadhich](https://medium.com/@dhanrajdadhich)
+- **LinkedIn**: [linkedin.com/in/dhanrajdadhich](https://www.linkedin.com/in/dhanrajdadhich)
 - **Skype**: 
   - dhanraj.dadhich
   - dhanraj.dadhich1
+
 
 ## 🛠️ Skills & Expertise
 Here’s a glimpse into my diverse skill set:
